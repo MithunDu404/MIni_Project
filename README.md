@@ -1,0 +1,1 @@
+Detailes of MiniProject
